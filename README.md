@@ -6,4 +6,4 @@ Nama anggota kelompok :
 
 1. Fata Haidar Aly
 2. Fijriati Rahmatur Rizqi
-3. -
+3. Singgih Wahyu Permana
